@@ -17,7 +17,7 @@
 
 
 
-[strawpage!](https://renkp.straw.page/)
+[strawpage!](https://kazusai.straw.page)
 
 
 [roblox acc](https://www.roblox.com/users/90588714/profile)
