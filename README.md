@@ -12,6 +12,7 @@
 
 19 years old
 
+mostly off-tab/afk on PT, w2i is encouraged
 
 
 
